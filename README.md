@@ -1,0 +1,1 @@
+# task_02_system_of_ai_9_semestr
